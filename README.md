@@ -9,3 +9,5 @@ this mod menu includes
 - noclip ( i have no idea)
 - there no more i made this in one day theres gonna be differnt mods soon
 # disocord server
+https://discord.gg/UpATnmuSRQ
+# also its not my faut if you get banned from my menu its your faut because you risked getting banned
