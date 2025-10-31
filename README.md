@@ -9,6 +9,6 @@ this mod menu includes
 - bigMonkey
 - there no more i made this in one day theres gonna be differnt mods soon
 # disocord server
-https://discord.gg/UpATnmuSRQ
+https://discord.gg/7uRMnjBVen
 # also its not my faut if you get banned from my menu its your faut because you risked getting banned
 creds to iis stupid for the mod menu template 
