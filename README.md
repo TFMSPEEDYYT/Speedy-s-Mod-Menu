@@ -11,3 +11,4 @@ this mod menu includes
 # disocord server
 https://discord.gg/UpATnmuSRQ
 # also its not my faut if you get banned from my menu its your faut because you risked getting banned
+creds to iis stupid for the mod menu template 
